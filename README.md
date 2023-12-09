@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **jarvisexe@proton.me**
 
-- ⚡ Fun fact **A group of flamingos is called a "flamboyance"!**
+- ⚡ Fun fact: **A group of flamingos is called a "flamboyance"!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
